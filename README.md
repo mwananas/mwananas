@@ -1,6 +1,6 @@
-#                 A N E I S !!!
+#                 A N E I S 
 
-### ⸝⸝ : ̗̀➛ ╰──╮"Gah?! Aah... Is... is this... mine end?..." ༝༝
+### ⸝⸝ : ̗̀➛ ╰──╮"Thus… my dream… has met its end…" ༝༝
 
 
 ![.](https://files.catbox.moe/x5rlt1.webp)
